@@ -10,6 +10,8 @@ Ready to plunge into a super cool journey of music? Let's start this adventure!
 - [Sprunki Retake Final Update](https://sprunkionline.net/)
 
 You may also like:
+- [Sprunki Relish](https://sprunkionline.net/game/sprunki-relish)
+- [Sprunki Retake Final Update](https://sprunkionline.net/game/sprunki-retake-final-update)
 - [Sprunki Pyramixed](https://sprunkionline.net/)
 - [Sprunki Parodybox](https://sprunkionline.net/)
 - [Sprunki Scrunkly](https://sprunkionline.net/)
